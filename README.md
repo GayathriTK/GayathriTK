@@ -1,11 +1,11 @@
 - 👋🏻 Hi, I’m Gayathri T K
+- 🎓 Sophomore currently pursuing B.Tech in CSE from [SRM University](https://srmrmp.edu.in/) 
 - 💻 Interested in cyber security
-- 🎓 Sophomore currently pursuing B.Tech in CSE
 - 🔎 Looking to collaborate with cyber security enthusiasts and coders
-- 👥 Working in Organizing & PR team [@SketchClub](https://www.sketchclub.in/) 
-- 🌱 Part of Culturals Team [@CampusLife](https://srmrmp.edu.in/students-life/campus-life/) 
-- 🖥 Internship [@ViralFission](https://www.viralfission.com/) 
-- 📖 Was a Student Coordinator [@LiteraryClub](https://srmrmp.edu.in/department-of-english-and-foreign-languages/literary-club/) 
+- 👥 Working in Organizing & PR team [Sketch](https://www.sketchclub.in/) 
+- 🌱 Part of Culturals Team [Campus Life](https://srmrmp.edu.in/students-life/campus-life/) 
+- 🖥 Internship [Viral Fission](https://www.viralfission.com/) 
+- 📖 Was a Student Coordinator [Literary Club](https://srmrmp.edu.in/department-of-english-and-foreign-languages/literary-club/) 
 - ⚡ Fun fact : I love to play outdoor & travel
 - 📫 Reach me [@gayuuu.____](https://www.instagram.com/gayuuu.____/) or say 👋🏻 on email at [GayathriTK](gayathri29.g3@gmail.com)
 
