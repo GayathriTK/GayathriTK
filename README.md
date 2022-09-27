@@ -1,5 +1,5 @@
 - 👋🏻 Hi, I’m Gayathri T K
-- 🎓 Sophomore currently pursuing B.Tech in CSE from [SRM University](https://srmrmp.edu.in/) 
+- 🎓 Junior currently pursuing B.Tech in CSE from [SRM University](https://srmrmp.edu.in/) 
 - 💻 Interested in cyber security
 - 🔎 Looking to collaborate with cyber security enthusiasts and coders
 - 👥 Working in Organizing & PR team [Sketch](https://www.sketchclub.in/) 
