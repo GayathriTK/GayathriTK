@@ -8,6 +8,7 @@
 - 📖 Was a Student Coordinator [Literary Club](https://srmrmp.edu.in/department-of-english-and-foreign-languages/literary-club/) 
 - ⚡ Fun fact : I love to play outdoor & travel
 - 📫 Reach me [@gayuuu.____](https://www.instagram.com/gayathri.thanabal/) or say 👋🏻 on email at [GayathriTK](gayathri.thanabalk@gmail.com)
+- 🫂Also, check my [LinkedIn](https://www.linkedin.com/in/gayathri-t-k/)
 
 <!---
 GayathriTK/GayathriTK is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
