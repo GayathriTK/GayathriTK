@@ -7,7 +7,7 @@
 - 🖥 Internship [Viral Fission](https://www.viralfission.com/) 
 - 📖 Was a Student Coordinator [Literary Club](https://srmrmp.edu.in/department-of-english-and-foreign-languages/literary-club/) 
 - ⚡ Fun fact : I love to play outdoor & travel
-- 📫 Reach me [@gayuuu.____](https://www.instagram.com/gayathri.thanabal/) or say 👋🏻 on email at [GayathriTK](gayathri.thanabalk@gmail.com)
+- 📫 Reach me [@gayathri.thanabal](https://www.instagram.com/gayathri.thanabal/) or say 👋🏻 on email at [GayathriTK](gayathri.thanabalk@gmail.com)
 - 🫂Also, check my [LinkedIn](https://www.linkedin.com/in/gayathri-t-k/)
 
 <!---
